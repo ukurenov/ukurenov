@@ -1,1 +1,1 @@
-Web3 lover
+Web2 scamer - Web3 lover
